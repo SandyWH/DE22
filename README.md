@@ -1,2 +1,0 @@
-# DE22
-Uppgifter
